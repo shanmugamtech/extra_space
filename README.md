@@ -1,4 +1,4 @@
-# extra_space photo
+# Chat Bot photo
 
 # Home page
 ![image](https://github.com/shanmugamtech/extra_space/assets/107739312/29bd1289-9de6-47b7-8424-b72755406d94)
