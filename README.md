@@ -10,4 +10,4 @@
 ![image](https://github.com/shanmugamtech/extra_space/assets/107739312/220fb597-23c6-4b18-85f3-ac854a2d6848)
 
 # laptop view 
-![image](https://github.com/shanmugamtech/extra_space/assets/107739312/0649e98d-66dd-4d9f-9d54-1401f50f4682)
+![image](https://github.com/shanmugamtech/extra_space/assets/107739312/8588cfe3-5221-46ef-9257-25f91d0db212)
